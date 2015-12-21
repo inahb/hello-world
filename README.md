@@ -3,6 +3,6 @@
 
 hey there!
 
-I am uniquely designed.🤓
+I am uniquely designed 🤓.
 
 |stay tuned|

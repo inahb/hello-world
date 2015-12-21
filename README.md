@@ -1,8 +1,7 @@
 # hello-world
 
+Greetings!
 
-hey there!
-
-I am uniquely designed 🤓.
+I go by Jc and I am uniquely designed 🤓.
 
 |stay tuned|

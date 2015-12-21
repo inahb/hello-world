@@ -3,6 +3,6 @@
 
 hey there!
 
-I go by Jc, I am uniquely designed. 
+I am uniquely designed.🤓
 
 |stay tuned|
